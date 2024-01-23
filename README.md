@@ -2,7 +2,7 @@
 - 👀 I’m interested in websites and web application development
 - 🌱 I’m currently learning computer science at diploma level
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me https://www.instagram.com/brosny_iv?igsh=ZHc4Y3JhOGVnbndm
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i love anime
 
